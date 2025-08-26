@@ -6,5 +6,5 @@ We provide speech therapy, occupational therapy, behavioral therapy, and special
 👉 Learn more: [Beautiful Shades Official Website](https://www.beautifulshades.in)
 
 ## Free Resources
-- [5 Simple Activities Parents Can Try at Home for Speech Development](https://www.beautifulshades.in)
-- [Occupational Therapy Support in Dwarka](https://www.beautifulshades.in)
+- [5 Simple Activities Parents Can Try at Home for Speech Development]([https://www.beautifulshades.in](https://www.beautifulshades.in/5-simple-speech-therapy-exercises-parents-can-try-at-home/))
+- [Occupational Therapy Support in Dwarka]([https://www.beautifulshades.in](https://www.beautifulshades.in/occupational-therapist-in-dwarka-delhi/))
